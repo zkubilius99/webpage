@@ -1,0 +1,2 @@
+ # Bandomasis puslapis 
+ Čia kuriamas bandomasis puslapis. Ši paskyra priklauso studentui S181 ....Šis puslapis kurimas Vilniaus Universiteto Ekonomikos ir verslo administravimo , → fakultete vykstanios ∗∗"duomenu analizs įvado"∗∗ paskaitu metu 
